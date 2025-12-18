@@ -7,7 +7,7 @@ yes, you can see that it's mostly roblox-
 ---
 I do make art! especially trying to learn better poses, i just do the same ones everytime, </3
 
-<img src="https://i.pinimg.com/736x/ad/89/08/ad890876204a2efd14cdfdfe92e1f304.jpg" alt="Story pin image"/><img width="736" height="446" alt="image" src="https://github.com/user-attachments/assets/42e7486f-b342-4afe-a946-1f3c26c69f9f" />
+<img src="https://i.pinimg.com/736x/ad/89/08/ad890876204a2efd14cdfdfe92e1f304.jpg" alt="Story pin image"/>
 
 ---
 i'm so broke but i need to buy more transformers
