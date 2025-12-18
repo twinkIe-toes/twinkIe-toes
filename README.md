@@ -12,7 +12,7 @@ I do make art! especially trying to learn better poses, i just do the same ones 
 ---
 i'm so broke but i need to buy more transformers
 
-recent art i made, which is something </3
+recent doodle i made of D-16 and Orion Pax, which is something </3
 
 <img src="https://media.discordapp.net/attachments/1371962297911607417/1446232549641814331/20251204_141049.jpg?ex=694508c5&amp;is=6943b745&amp;hm=6632f019951daa17d18ca30adc1355e5654644eb8ee5451d68dd4d41501b5bfc&amp;=&amp;format=webp&amp;width=822&amp;height=617" alt="Image"/>\
 
