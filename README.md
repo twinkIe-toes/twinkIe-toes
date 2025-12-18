@@ -17,3 +17,5 @@ recent doodle i made of D-16 and Orion Pax, which is something </3
 <img src="https://media.discordapp.net/attachments/1371962297911607417/1446232549641814331/20251204_141049.jpg?ex=694508c5&amp;is=6943b745&amp;hm=6632f019951daa17d18ca30adc1355e5654644eb8ee5451d68dd4d41501b5bfc&amp;=&amp;format=webp&amp;width=822&amp;height=617" alt="Image"/>\
 
 hope u like it!!
+
+![tumblr_107e184a351788a5c356dc77f2766333_020c649e_640](https://github.com/user-attachments/assets/67f31c5d-4377-4832-b2c8-870781c7b0cf)
