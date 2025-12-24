@@ -19,3 +19,5 @@ recent doodle i made of D-16 and Orion Pax, which is something </3
 hope u like it!!
 
 ![tumblr_107e184a351788a5c356dc77f2766333_020c649e_640](https://github.com/user-attachments/assets/67f31c5d-4377-4832-b2c8-870781c7b0cf)
+
+please tell me if you get uncomfortable if i said something you didn't like! i need to know so i won't do it again! i hve no filter-
