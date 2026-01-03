@@ -14,7 +14,7 @@ i'm so broke but i need to buy more transformers
 
 recent doodle i made of D-16 and Orion Pax, which is something </3
 
- <img src="https://media.discordapp.net/attachments/1371962297911607417/1456561218537132106/20260102_021256.jpg?ex=69597898&amp;is=69582718&amp;hm=ae6c0d44d15061d0310e5d30513db2c6de347e0bfec5587938bd09cf777a407c&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/><img width="444" height="592" alt="image" src="https://github.com/user-attachments/assets/f90a8e24-d5bd-43ca-b747-83fcd40d914f" />
+ <img src="https://media.discordapp.net/attachments/1371962297911607417/1456561218537132106/20260102_021256.jpg?ex=69597898&amp;is=69582718&amp;hm=ae6c0d44d15061d0310e5d30513db2c6de347e0bfec5587938bd09cf777a407c&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/>
 
 hope u like it!!
 
