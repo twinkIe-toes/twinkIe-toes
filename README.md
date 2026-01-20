@@ -14,7 +14,8 @@ i'm so broke but i need to buy more transformers
 
 recent doodle i made of 007n7 and Noli!
 
- <img src="https://media.discordapp.net/attachments/1371962297911607417/1456561218537132106/20260102_021256.jpg?ex=69597898&amp;is=69582718&amp;hm=ae6c0d44d15061d0310e5d30513db2c6de347e0bfec5587938bd09cf777a407c&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/>
+[
+](https://discord.com/channels/1371956596615282799/1371962297911607417/1446232549658722405)
 
 please tell me smth else to draw so i can get rid of this bum ahh art. (from a fandom i'm in ofc)
 
