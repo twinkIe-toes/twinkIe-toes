@@ -12,12 +12,11 @@ I do make art! especially trying to learn better poses, i just do the same ones 
 ---
 i'm so broke but i need to buy more transformers
 
-recent doodle i made of 007n7 and Noli!
+this is uhh old doodle of D-16 and Orion Pax
 
-[
-](https://discord.com/channels/1371956596615282799/1371962297911607417/1446232549658722405)
+<img src="https://media.discordapp.net/attachments/1371962297911607417/1446232549641814331/20251204_141049.jpg?ex=69713305&amp;is=696fe185&amp;hm=e554c0aa2844d8e031dbdf9abe6d5e162e07fa7ce8e61cc100cac56967eb2568&amp;=&amp;format=webp&amp;width=822&amp;height=617" alt="Image"/>
 
-please tell me smth else to draw so i can get rid of this bum ahh art. (from a fandom i'm in ofc)
+please tell me smth else to draw  (from a fandom i'm in ofc)
 
 ![tumblr_107e184a351788a5c356dc77f2766333_020c649e_640](https://github.com/user-attachments/assets/67f31c5d-4377-4832-b2c8-870781c7b0cf)
 
