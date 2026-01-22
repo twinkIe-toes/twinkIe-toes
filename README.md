@@ -12,11 +12,13 @@ I do make art! especially trying to learn better poses, i just do the same ones 
 ---
 i'm so broke but i need to buy more transformers
 
-this is uhh old doodle of D-16 and Orion Pax
+the first one is my oc and the second one is Mequot 
 
-<img src="https://media.discordapp.net/attachments/1371962297911607417/1446232549641814331/20251204_141049.jpg?ex=69713305&amp;is=696fe185&amp;hm=e554c0aa2844d8e031dbdf9abe6d5e162e07fa7ce8e61cc100cac56967eb2568&amp;=&amp;format=webp&amp;width=822&amp;height=617" alt="Image"/>
+<img src="https://media.discordapp.net/attachments/1371951717486432330/1463695892061360138/20260121_184244.jpg?ex=6972c486&amp;is=69717306&amp;hm=ac9305c0eb879fbc2af4ce3ebf88710586390ea6a4dd7d830b4743306019885a&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/>
 
-please tell me smth else to draw  (from a fandom i'm in ofc)
+<img src="https://media.discordapp.net/attachments/1371951717486432330/1463695891587268721/20260121_184314.jpg?ex=6972c486&amp;is=69717306&amp;hm=2bb30d562c24d0fea0f17895a5c006d19f8ed7e1e65f1c1356284d854842c509&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/>
+
+please give me smth else to draw  (from a fandom i'm in ofc)
 
 ![tumblr_107e184a351788a5c356dc77f2766333_020c649e_640](https://github.com/user-attachments/assets/67f31c5d-4377-4832-b2c8-870781c7b0cf)
 
