@@ -25,5 +25,4 @@ please tell me if you get uncomfortable if i said something you didn't like! i n
 
 I accept legal ships but i do suck at roleplaying </33333
 
-
-people glaze Miku
+please do not come up to me randomly and kiss me! unless it's a way of complimenting my pony, say it first!!
