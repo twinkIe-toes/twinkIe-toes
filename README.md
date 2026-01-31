@@ -2,8 +2,7 @@
 ---
 *Currently into* 
 
-**Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF,(etc!)**
-yes, you can see that it's mostly roblox-
+**Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe (etc!)**
 ---
 I do make art! especially trying to learn better poses, i just do the same ones everytime, </3
 
