@@ -25,3 +25,6 @@ please give me smth else to draw  (from a fandom i'm in ofc)
 please tell me if you get uncomfortable if i said something you didn't like! i need to know so i won't do it again! again, i have no filter-
 
 I accept legal ships but i do suck at roleplaying </33333
+
+
+people glaze Miku
