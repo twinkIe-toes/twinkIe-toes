@@ -29,4 +29,4 @@ please do not come up to me randomly and kiss me! unless it's a way of complimen
 
 and i accept friend requests, but please be atleast 13-16
 
-i kinda fictionkin Megatron... uhuhhuhhhhh.. but i don' rp? does that work? idk
+i kinda fictionkin Megatron... uhuhhuhhhhh.. but i don't rp? does that work? idk
