@@ -26,3 +26,7 @@ please tell me if you get uncomfortable if i said something you didn't like! i n
 I accept legal ships but i do suck at roleplaying </33333
 
 please do not come up to me randomly and kiss me! unless it's a way of complimenting my pony, say it first!!
+
+and i accept friend requests, but please be atleast 13-16
+
+i kinda fictionkin Megatron... uhuhhuhhhhh.. but i don' rp? does that work? idk
