@@ -27,6 +27,6 @@ I accept legal ships but i do suck at roleplaying </33333
 
 please do not come up to me randomly and kiss me! unless it's a way of complimenting my pony, say it first!!
 
-and i accept friend requests, but please be atleast 13-16
+and i accept friend requests, but please be 13+ and lower than 18!
 
 i kinda fictionkin Megatron... uhuhhuhhhhh.. but i don't rp? does that work? idk
