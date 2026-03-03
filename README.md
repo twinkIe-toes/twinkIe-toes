@@ -29,4 +29,21 @@ please do not come up to me randomly and kiss me! unless it's a way of complimen
 
 and i accept friend requests, but please be 13+ and lower than 18!
 
-i kinda fictionkin Megatron... uhuhhuhhhhh.. but i don't rp? does that work? idk
+i fictionkin
+Megatron,(Transformers)
+shrimpo, (Dandys world)
+C00lkidd (not forsaken),
+007n7, (forsaken)
+doey, (poppy playtime)
+Matt, (the last guest)
+Shrimpo(Dandys world)
+Wallter(Regretevator)
+Mark(Regretevator)
+Jard(Evade)
+Hotdog(Die of Death)
+Spinel (Steven Universe)
+Broken Spawn (Let him go)
+Ivan (Bad Things)
+Valentino (Hazbin Hotel) Dont support his actions btw, i really like his design
+Boombox (Phighting)
+Clancy (Midnight Gospel)
