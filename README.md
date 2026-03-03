@@ -44,6 +44,7 @@ Hotdog(Die of Death)
 Spinel (Steven Universe)
 Broken Spawn (Let him go)
 Ivan (Bad Things)
-Valentino (Hazbin Hotel) Dont support his actions btw, i really like his design
+Valentino (Hazbin Hotel) Dont support his actions btw, i really like his design,
 Boombox (Phighting)
 Clancy (Midnight Gospel)
+Noobador (Block Tales)
