@@ -2,7 +2,7 @@
 ---
 *Currently into* 
 
-**Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe (etc!)**
+**Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe, Dive (etc!)**
 ---
 I do make art! especially trying to learn better poses, i just do the same ones everytime, </3
 
@@ -11,11 +11,6 @@ I do make art! especially trying to learn better poses, i just do the same ones 
 ---
 i'm so broke but i need to buy more transformers
 
-the first one is my oc and the second one is Mequot 
-
-<img src="https://media.discordapp.net/attachments/1371951717486432330/1463695892061360138/20260121_184244.jpg?ex=6972c486&amp;is=69717306&amp;hm=ac9305c0eb879fbc2af4ce3ebf88710586390ea6a4dd7d830b4743306019885a&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/>
-
-<img src="https://media.discordapp.net/attachments/1371951717486432330/1463695891587268721/20260121_184314.jpg?ex=6972c486&amp;is=69717306&amp;hm=2bb30d562c24d0fea0f17895a5c006d19f8ed7e1e65f1c1356284d854842c509&amp;=&amp;format=webp&amp;width=444&amp;height=592" alt="Image"/>
 
 please give me smth else to draw  (from a fandom i'm in ofc)
 
@@ -48,3 +43,4 @@ Valentino (Hazbin Hotel) Dont support his actions btw, i really like his design,
 Boombox (Phighting)
 Clancy (Midnight Gospel)
 Noobador (Block Tales)
+Ron (Dive)
