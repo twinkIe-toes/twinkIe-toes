@@ -2,7 +2,7 @@
 ---
 *Currently into* 
 
-**Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe, Dive (etc!)**
+**Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe, Dive, Mouthwashing (etc!)**
 ---
 I do make art! especially trying to learn better poses, i just do the same ones everytime, </3
 
@@ -28,7 +28,6 @@ i fictionkin
 Megatron,(Transformers)
 shrimpo, (Dandys world)
 C00lkidd (not forsaken),
-007n7, (forsaken)
 doey, (poppy playtime)
 Matt, (the last guest)
 Shrimpo(Dandys world)
@@ -44,3 +43,5 @@ Boombox (Phighting)
 Clancy (Midnight Gospel)
 Noobador (Block Tales)
 Ron (Dive)
+
+bru idk what i'm doing
