@@ -24,6 +24,8 @@ i do accept kisses, but very limited!!
 
 and i accept friend requests, but please be 13+ and lower than 18!
 
+i listen to Mitski, Tyler the Creator, and Malcolm Todd. 
+
 i fictionkin
 Megatron,(Transformers)
 shrimpo, (Dandys world)
@@ -45,3 +47,4 @@ Noobador (Block Tales)
 Ron (Dive)
 
 bru idk what i'm doing
+
