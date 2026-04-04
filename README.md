@@ -46,5 +46,7 @@ Clancy (Midnight Gospel)
 Noobador (Block Tales)
 Ron (Dive)
 
+DNI if ur just gonna be a hater, or nake my friends uncomfortable,  you will be hid. 
+
 bru idk what i'm doing
 
