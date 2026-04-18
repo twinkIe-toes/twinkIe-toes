@@ -28,6 +28,7 @@ i listen to Mitski, Tyler the Creator, and Malcolm Todd.
 
 i fictionkin
 Megatron,(Transformers)
+Sideswipe (Transformers)
 shrimpo, (Dandys world)
 C00lkidd (not forsaken),
 doey, (poppy playtime)
@@ -40,7 +41,6 @@ Hotdog(Die of Death)
 Spinel (Steven Universe)
 Broken Spawn (Let him go)
 Ivan (Bad Things)
-Valentino (Hazbin Hotel) Dont support his actions btw, i really like his design,
 Boombox (Phighting)
 Clancy (Midnight Gospel)
 Noobador (Block Tales)
@@ -49,5 +49,3 @@ Ron (Dive)
 DNI if ur just gonna be a hater, or nake my friends uncomfortable,  you will be hid. 
 
 bru idk what i'm doing
-
-https://-twinkletoes-.straw.page
