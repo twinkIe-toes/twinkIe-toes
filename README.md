@@ -11,8 +11,7 @@ I do make art! especially trying to learn better poses, i just do the same ones 
 ---
 i'm so broke but i need to buy more transformers
 
-
-please give me smth else to draw  (from a fandom i'm in ofc)
+go to my strawpage and draw me smth pretty
 
 ![tumblr_107e184a351788a5c356dc77f2766333_020c649e_640](https://github.com/user-attachments/assets/67f31c5d-4377-4832-b2c8-870781c7b0cf)
 
@@ -20,9 +19,7 @@ please tell me if you get uncomfortable if i said something you didn't like! i n
 
 I accept legal ships but i do suck at roleplaying </33333
 
-i do accept kisses, but very limited!!
-
-and i accept friend requests, but please be 13+ and lower than 18!
+and i accept friend requests, let me get to know you first
 
 i listen to Mitski, Tyler the Creator, and Malcolm Todd. 
 
@@ -33,14 +30,12 @@ shrimpo, (Dandys world)
 C00lkidd (not forsaken),
 doey, (poppy playtime)
 Matt, (the last guest)
-Shrimpo(Dandys world)
 Wallter(Regretevator)
 Mark(Regretevator)
 Jard(Evade)
 Hotdog(Die of Death)
 Spinel (Steven Universe)
 Broken Spawn (Let him go)
-Ivan (Bad Things)
 Boombox (Phighting)
 Clancy (Midnight Gospel)
 Noobador (Block Tales)
