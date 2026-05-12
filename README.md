@@ -45,7 +45,10 @@ Boombox (Phighting)
 Clancy (Midnight Gospel)
 Noobador (Block Tales)
 Ron (Dive)
+August / The Man From The Shadow (Minecraft horror mod)
 
 DNI if ur just gonna be a hater, or make my friends uncomfortable,  you will be hid. 
 
 bru idk what i'm doing
+
+<img src="https://i.pinimg.com/736x/25/30/17/253017a5bd241c8f373c9f91b5e9c6c7.jpg" alt="Story pin image"/>
