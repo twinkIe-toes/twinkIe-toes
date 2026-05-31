@@ -9,7 +9,7 @@ I do make art! especially trying to learn better poses, i just do the same ones 
 <img src="https://i.pinimg.com/736x/ad/89/08/ad890876204a2efd14cdfdfe92e1f304.jpg" alt="Story pin image"/>
 
 ---
-i'm so broke but i need to buy more transformers
+i'm sorry TADC fans but Jax is so overrated bro, can we get some hate on this guy
 
 go to my strawpage and draw me smth pretty
 
