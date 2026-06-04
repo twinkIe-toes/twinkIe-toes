@@ -4,7 +4,7 @@
 
 **Transformers, Forsaken, Blocktales, Die of Death, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe, Dive, Mouthwashing (etc!)**
 ---
-I do make art! especially trying to learn better poses, i just do the same ones everytime, </3
+I do make art! especially trying to learn better poses, i just do the same ones everytime, </3 if you know any really good art tuts, lmk
 
 <img src="https://i.pinimg.com/736x/ad/89/08/ad890876204a2efd14cdfdfe92e1f304.jpg" alt="Story pin image"/>
 
@@ -15,13 +15,13 @@ go to my strawpage and draw me smth pretty
 
 ![tumblr_107e184a351788a5c356dc77f2766333_020c649e_640](https://github.com/user-attachments/assets/67f31c5d-4377-4832-b2c8-870781c7b0cf)
 
-please tell me if you get uncomfortable if i said something you didn't like! i need to know so i won't do it again! again, i have no filter-
+please tell me if you get uncomfortable if i said something you didn't like! i need to know so i won't do it again! i have no filter-
 
 I accept legal ships but i do suck at roleplaying </33333
 
 and i accept friend requests, let me get to know you first
 
-i listen to Mitski, Tyler the Creator, and Malcolm Todd. 
+i listen to Mitski, Tyler the Creator, and Malcolm Todd!
 
 i fictionkin
 Megatron,(Transformers)
@@ -42,7 +42,7 @@ Noobador (Block Tales)
 Ron (Dive)
 August / The Man From The Shadow (Minecraft horror mod)
 
-DNI if ur just gonna be a hater, or make my friends uncomfortable,  you will be hid. 
+DNI if ur just gonna be a hater, or make my friends uncomfortable, you will be hid. 
 
 bru idk what i'm doing
 
