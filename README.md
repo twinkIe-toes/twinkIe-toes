@@ -2,7 +2,7 @@
 ---
 *Currently into* 
 
-**Transformers, Forsaken, Blocktales, Die of Death, Midnight Gospel, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe, Dive, Mouthwashing (etc!)**
+**Transformers, Forsaken, Blocktales, Die of Death, Midnight Gospel, The Amazing Digital Circus, Let Him Go, Bad Things, Hazbin Hotel, Helluva Boss, FNF, RVB, Steven Universe, Dive, Mouthwashing, Minesweeper Plus, MADNESS COMBAT, (etc!)**
 ---
 I do make art! especially trying to learn better poses, i just do the same ones everytime, </3 if you know any really good art tuts, lmk
 
