@@ -49,3 +49,5 @@ bru idk what i'm doing
 <img src="https://i.pinimg.com/736x/25/30/17/253017a5bd241c8f373c9f91b5e9c6c7.jpg" alt="Story pin image"/>
 
 # RECROOM IS FUCKING GONE
+
+uhhh lmk if my strawpage isn't working, i've been trying to figure out why.
